@@ -12,4 +12,4 @@ santos.preira.ezequiel@escola.pr.gov.br
 @cwb_zequi 
 
 
-![](https://media.tenor.com/n8tYgJClcTYAAAAi/among-us-trolling-sussy-trolling.gif)
+![](https://media.tenor.com/pGTi-vg018UAAAAd/sus-among-us-skin-tone-chicken-bone.gif)
