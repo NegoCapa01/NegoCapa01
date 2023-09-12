@@ -12,4 +12,4 @@ santos.preira.ezequiel@escola.pr.gov.br
 @cwb_zequi 
 
 
-![](https://media.tenor.com/Zs5C-Vyahx4AAAAi/malik-mente%C5%9F-06ren88.gif)
+![](https://media.tenor.com/n8tYgJClcTYAAAAi/among-us-trolling-sussy-trolling.gif)
